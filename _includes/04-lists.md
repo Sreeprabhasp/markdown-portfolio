@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Name of places -
+#
+Tvm
+Kollam
+Kottayam 
